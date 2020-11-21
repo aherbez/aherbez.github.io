@@ -1,1 +1,1 @@
-# This is going to be an AWESOME site!
+# this is going to be GREAT!
